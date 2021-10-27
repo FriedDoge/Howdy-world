@@ -1,2 +1,2 @@
 # Howdy-world
-My name is Ryan, aka FriedDoge. I just started learning to program a couple days ago so.. welcome to my coding venture! Please do enjoy your stay
+My name is Ryan, aka FriedDoge. I love tech and animals(especially dogs). Just started learning to program a few days ago so.. welcome to my journey amd enjoy the stay
